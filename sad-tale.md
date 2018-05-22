@@ -7,3 +7,5 @@ happily ever after...  He definitely didn't get axe murdered.
 
 And even if he did get murdered, he has the power to come back to life thanks
 to the gift of life given by Athena to him.
+
+AND THEN THE DRAGONS CAME AND ATE THE GODS AND THE MEN AND IT WAS GLORIOUS
